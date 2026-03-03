@@ -6,3 +6,4 @@ This is day No 1. Goal is to push 100 commits continuously from 25/02/2026
 “Everyday we are at war.
 Peaceful mind is earned.”
 Every day brings new choices.
+It's time for us to do what we have been doing and that time is every day.
