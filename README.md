@@ -10,3 +10,4 @@ It's time for us to do what we have been doing and that time is every day.
 Every day is a good day to be alive, whether the sun's shining or not.
 Every day is a gift from God, no matter how old we are
 The biggest risk is standing still while everyone else is executing.
+Every day I look as a chance to get better and I try to get better for the next day
